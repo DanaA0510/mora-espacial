@@ -1,0 +1,2 @@
+# mora-espacial
+Explosión garantizada
